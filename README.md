@@ -3,4 +3,4 @@
 <p align="center">
 
 ##### <p align="center">⠀she/her⠀ spanish⠀⠀esp/esp⠀⠀#1 mismagius & lugia fan
-##### <p align="center"> [carrd](https://starpkmn.carrd.co/#)⠀ [atabook](https://ryuvi.atabook.org/)⠀⠀[strawpage](https://starpkmn.straw.page)⠀⠀
+##### <p align="center"> [carrd](https://starpkmn.carrd.co/#)⠀ [atabook](https://ryuvi.atabook.org/)  [strawpage](https://starpkmn.straw.page)⠀⠀
