@@ -1,6 +1,5 @@
 <p align="center">
-<img src= "https://files.catbox.moe/n0pu7a.png">
-
+<a href="https://pokemondb.net/pokedex/lugia"><img src="https://img.pokemondb.net/sprites/diamond-pearl/normal/lugia.png" alt="Lugia"></a>
 <p align="center">
 
 ##### <p align="center">⠀she/her⠀ spanish⠀⠀esp/esp⠀⠀#1 mismagius & lugia fan
