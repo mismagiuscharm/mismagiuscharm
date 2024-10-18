@@ -3,7 +3,7 @@
 <p align="center">
 
 ##### <p align="center">⠀she/her⠀ spanish⠀⠀esp/esp⠀⠀#1 mismagius & lugia fan
-##### <p align="center"> [carrd](https://starpkmn.carrd.co/#)⠀ [atabook](https://ryuvi.atabook.org/)  [strawpage](https://starpkmn.straw.page)⠀⠀
+##### <p align="center"> [guns](https://guns.lol/starpkmn)⠀ [atabook](https://ryuvi.atabook.org/)  [strawpage](https://starpkmn.straw.page)⠀⠀
 <p align="center"
   
 ![](https://komarev.com/ghpvc/?username=mismagiuscharm&color=5f8696&style=flat-square&label=ꔫ)
